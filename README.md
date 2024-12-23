@@ -38,5 +38,5 @@ SelçukSports'a abone olarak, **her zaman** ve **her yerde** sporun keyfini çı
 
 ## Tags
 
-iptv satin al, en ucuz iptv, selcuksports, selcukspor giriş, en kaliteli iptv
+selcuksportshd, selcuksports, selcuksport, selcuksporthd, selcuksportshd xyz, selcuk sports, selcuk sport, selcuksportshd.xyz selcuk sports hd, selcuk sport hd, selçuk spor, selçuksports, selçuk sports, selçuk sports tv, selçuk sports izle
 
