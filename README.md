@@ -5,9 +5,9 @@
 
 SelçukSports, spor tutkunları için özel olarak tasarlanmış yüksek kaliteli IPTV platformudur. Dünyanın dört bir yanındaki spor etkinliklerini kesintisiz ve HD kalitesinde izleme imkanı sunuyor. Futbol, basketbol, tenis, Formula 1 ve daha fazlası ile sporun kalbinde yer alabilirsiniz.
 
-<a href="https://selcuksports2.com/" title="ResimLink - Resim Yükle"><img src="https://www.selcuksportshd78.biz/images/grnd/selcuk-buton1-min.gif" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://selcuksports2.com/" title="ResimLink - Resim Yükle"><img src="https://github.com/user-attachments/assets/36442152-7682-4914-a490-e87185ebb088" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 <a href="https://selcuksports2.com/">
-    <img src="https://www.selcuksportshd78.biz/images/grnd/selcuk-buton1-min.gif" />
+    <img src="https://github.com/user-attachments/assets/36442152-7682-4914-a490-e87185ebb088" />
 </a>
 </a>
 
